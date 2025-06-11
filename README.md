@@ -1,0 +1,1 @@
+# Thanma-dou-core
